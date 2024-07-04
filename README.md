@@ -1,1 +1,1 @@
-Me encanta crear productos tecnológicos con una sólida experiencia y experiencia en ingeniería de desarrollo de software. Un aprendiz de por vida al que le gusta mantener sus habilidades técnicas actualizadas.
+
